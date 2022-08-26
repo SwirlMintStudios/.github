@@ -1,1 +1,1 @@
-### Welcome to SwirlMint Studios!
+### Welcome to SwirlMint Studios! - Indie Game Design and Publishing
