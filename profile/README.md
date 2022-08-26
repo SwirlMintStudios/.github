@@ -1,4 +1,4 @@
 <p align="center">
-### Welcome to SwirlMint Studios! - Indie Game Design and Publishing
+Welcome to SwirlMint Studios! - Indie Game Design and Publishing
 </p>
 
